@@ -1,4 +1,4 @@
-# Career-path-Checkpoint
+
 # Bootcamp Reflections
 
 ## How Ready I Am to Start the Next Step in My Career
